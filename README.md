@@ -6,7 +6,6 @@ Here's all my works I did in my life.
 
 
 Though it's not every project is completed, but I'll try my best and spend my
-
 time to finished them.
 
 
